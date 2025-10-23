@@ -1,1 +1,1 @@
-# Curriculo
+Profissional em transição para a área de Tecnologia, com sólida experiência em gestão de projetos e auditoria. Minha trajetória em otimização de processos e gestão de stakeholders me preparou para construir soluções tecnológicas eficientes e robustas. Atualmente, aprimorando minhas habilidades em Análise e Desenvolvimento de Sistemas na CESAR School, busco oportunidades para unir minha capacidade de gestão ao conhecimento técnico.lo
